@@ -13,4 +13,6 @@ SeKAAAAAAAI de ichineban ohimesama
 Sōooooo iuuuuuuu atsukai kokoroooeeeee teEEEEEEEEEEEEEE
 
 Yone
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fhatsune-miku-gifs&psig=AOvVaw2S8l8WWD1MEzYYkHlrvv5s&ust=1718494877155000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCPj2yLai3IYDFQAAAAAdAAAAABAE)
+
+![](![image](https://github.com/MrLewis013/Hatsune-Miku/assets/172554614/afe0ed71-bb72-4cb9-aa3f-c677ed42d6ce)
+
